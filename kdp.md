@@ -2,9 +2,6 @@
 
 # Introduction
 
-Introduction: Overview
-======================
-
 In today's fast-paced and ever-changing work environment, the ability to adapt to change and uncertainty is essential for success. However, navigating these challenges can be difficult and stressful, leaving many employees feeling overwhelmed and burnt out. That's where resilience comes in.
 
 Resilience is the ability to bounce back from adversity and thrive in the face of change and uncertainty. It's a critical skill for building personal and professional success, and for creating a healthy and sustainable workplace culture. But how do you foster resilience in yourself and your team?
