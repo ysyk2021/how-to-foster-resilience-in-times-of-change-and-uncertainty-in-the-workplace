@@ -12,7 +12,6 @@ We'll also provide practical tips and techniques for building resilience, such a
 
 By prioritizing resilience, you can navigate change and uncertainty with greater ease and confidence, and build a successful and sustainable career and organization. So let's get started on the path to building resilience in the workplace.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
