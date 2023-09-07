@@ -1,5 +1,3 @@
-Chapter 11: Implementation Strategies for Lasting Change
-========================================================
 
 Implementing strategies for lasting change is essential for building resilience in the workplace. In this chapter, we will discuss techniques for creating a roadmap for fostering resilience and tracking progress towards achieving it.
 

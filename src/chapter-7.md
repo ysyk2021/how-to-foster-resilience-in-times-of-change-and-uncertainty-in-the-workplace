@@ -1,5 +1,3 @@
-Chapter 7: Cultivating Social Support and Connection
-====================================================
 
 Cultivating social support and connection is essential for fostering resilience in the workplace. In this chapter, we will provide an overview of the importance of cultivating social support and connection and strategies for achieving it.
 

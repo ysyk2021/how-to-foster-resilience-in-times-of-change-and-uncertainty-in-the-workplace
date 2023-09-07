@@ -1,5 +1,3 @@
-Chapter 8: Using Problem-Solving and Decision-Making Skills
-===========================================================
 
 Using problem-solving and decision-making skills is essential for fostering resilience in the workplace. In this chapter, we will discuss the importance of using problem-solving and decision-making skills and techniques for achieving it.
 

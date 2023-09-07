@@ -1,4 +1,3 @@
-# Tracking Progress and Celebrating Successes
 
 In times of change and uncertainty, tracking progress and celebrating successes becomes even more crucial in fostering resilience in the workplace. It helps to maintain morale, boost motivation, and create a sense of stability amidst challenges. This chapter explores effective strategies for tracking progress and celebrating achievements, emphasizing their importance in promoting resilience.
 

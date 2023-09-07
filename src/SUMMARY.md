@@ -33,3 +33,5 @@
   - [Creating a roadmap for fostering resilience in times of change and uncertainty in the workplace](chapter-11-1.md)
   - [Tracking progress and celebrating successes](chapter-11-2.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

@@ -1,5 +1,3 @@
-Chapter 4: Building Emotional Intelligence and Self-Awareness
-=============================================================
 
 Building emotional intelligence and self-awareness is essential for fostering resilience in times of change and uncertainty. In this chapter, we will discuss the importance of building emotional intelligence and self-awareness and techniques for achieving it.
 

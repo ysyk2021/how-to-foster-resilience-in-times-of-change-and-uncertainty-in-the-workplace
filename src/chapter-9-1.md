@@ -1,4 +1,3 @@
-# Common Obstacles to Fostering Resilience
 
 In this chapter, we will explore some common obstacles that individuals and organizations may face when trying to foster resilience in the workplace. Resilience is a crucial skill that allows us to adapt, grow, and bounce back from challenges and setbacks. However, certain barriers can hinder the development of resilience within individuals and teams. By understanding these obstacles, we can proactively address them and create a more resilient work environment.
 

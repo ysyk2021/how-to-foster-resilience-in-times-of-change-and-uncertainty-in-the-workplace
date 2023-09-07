@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we will explore the importance of fostering resilience in times of change and uncertainty in the workplace.
 

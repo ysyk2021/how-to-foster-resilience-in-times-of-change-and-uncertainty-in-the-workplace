@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Obstacles to Fostering Resilience
-=======================================================
 
 In this chapter, we will explore common obstacles to fostering resilience in the workplace and strategies for overcoming them.
 

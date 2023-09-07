@@ -1,5 +1,3 @@
-The Importance of Fostering Resilience in Times of Change and Uncertainty in the Workplace
-===================================================================================================================
 
 In this chapter, we will explore the importance of fostering resilience in the workplace, particularly during times of change and uncertainty.
 

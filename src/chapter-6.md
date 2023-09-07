@@ -1,5 +1,3 @@
-Chapter 6: Navigating Change and Uncertainty with Agility
-=========================================================
 
 Navigating change and uncertainty with agility is essential for fostering resilience in the workplace. In this chapter, we will discuss the importance of navigating change and uncertainty with agility and techniques for achieving it.
 

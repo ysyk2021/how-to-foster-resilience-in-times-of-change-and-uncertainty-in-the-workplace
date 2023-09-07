@@ -1,5 +1,3 @@
-Chapter 5: Enhancing Physical and Mental Well-Being
-===================================================
 
 In this chapter, we will explore the importance of enhancing physical and mental well-being for fostering resilience in times of change and uncertainty in the workplace. We will discuss strategies for maintaining healthy habits, managing stress, and preventing burnout.
 

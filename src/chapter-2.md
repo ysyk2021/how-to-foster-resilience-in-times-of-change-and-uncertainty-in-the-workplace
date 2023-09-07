@@ -1,5 +1,3 @@
-Chapter 2: Understanding Resilience in the Workplace
-====================================================
 
 In this chapter, we will explore what resilience means in the workplace. We will discuss the definition of resilience in the workplace and the benefits it can bring to individuals and organizations.
 

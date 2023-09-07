@@ -1,5 +1,3 @@
-Chapter 10: Incorporating Resilience into Company Culture and Practices
-=======================================================================
 
 In this chapter, we will explore the importance of incorporating resilience into company culture and practices, as well as techniques for integrating resilience into decision-making, operations, and governance.
 

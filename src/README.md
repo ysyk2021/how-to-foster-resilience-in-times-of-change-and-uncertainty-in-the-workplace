@@ -1,4 +1,4 @@
-# Introduction
+
 
 In today's fast-paced and ever-changing work environment, the ability to adapt to change and uncertainty is essential for success. However, navigating these challenges can be difficult and stressful, leaving many employees feeling overwhelmed and burnt out. That's where resilience comes in.
 
@@ -11,3 +11,7 @@ We'll also provide practical tips and techniques for building resilience, such a
 By prioritizing resilience, you can navigate change and uncertainty with greater ease and confidence, and build a successful and sustainable career and organization. So let's get started on the path to building resilience in the workplace.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

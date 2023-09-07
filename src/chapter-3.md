@@ -1,5 +1,3 @@
-Chapter 3: Developing a Growth Mindset
-======================================
 
 In this chapter, we will explore the importance of developing a growth mindset for fostering resilience in times of change and uncertainty in the workplace. We will discuss strategies for embracing challenges, learning from failures, and seeking feedback.
 
