@@ -1,5 +1,4 @@
-Chapter 5: Importance of Using Problem-Solving and Decision-Making Skills for Fostering Resilience
-==================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the vital role that problem-solving and decision-making skills play in fostering resilience within the workplace. These skills are essential tools for individuals and organizations to navigate the challenges posed by change and uncertainty.
 

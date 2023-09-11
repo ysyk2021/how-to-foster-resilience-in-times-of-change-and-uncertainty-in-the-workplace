@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Maintaining Healthy Habits, Managing Stress, and Preventing Burnout
-=============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential strategies for maintaining healthy habits, effectively managing stress, and preventing burnout in the workplace. These practices are fundamental for fostering resilience during times of change and uncertainty.
 

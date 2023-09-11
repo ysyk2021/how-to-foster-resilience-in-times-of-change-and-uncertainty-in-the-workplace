@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Integrating Resilience into Decision-Making, Operations, and Governance
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques and strategies for integrating resilience into various aspects of workplace decision-making, operations, and governance. By embedding resilience into these core functions, organizations can better navigate change and uncertainty while fostering a culture of adaptability and strength.
 

@@ -1,5 +1,4 @@
-Chapter 4: Overview of Enhancing Physical and Mental Well-Being for Fostering Resilience
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of the critical role that physical and mental well-being play in fostering resilience in times of change and uncertainty within the workplace. Understanding the significance of a healthy mind and body is essential for building a resilient work environment.
 

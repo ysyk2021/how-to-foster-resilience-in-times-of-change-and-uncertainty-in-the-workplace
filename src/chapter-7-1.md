@@ -1,5 +1,4 @@
-Chapter 5: Overview of Cultivating Social Support and Connection for Fostering Resilience
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of the crucial role that social support and connection play in fostering resilience in times of change and uncertainty in the workplace. Understanding the significance of these elements is fundamental to building a resilient and supportive work environment.
 

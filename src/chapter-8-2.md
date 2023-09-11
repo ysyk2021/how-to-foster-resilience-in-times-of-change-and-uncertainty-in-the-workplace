@@ -1,5 +1,4 @@
-Chapter 12: Techniques for Analyzing Situations, Generating Ideas, and Making Informed Decisions
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a variety of techniques that can help individuals and organizations effectively analyze complex situations, generate creative ideas, and make informed decisions when faced with change and uncertainty in the workplace. These techniques are essential for fostering resilience and adapting to dynamic environments.
 

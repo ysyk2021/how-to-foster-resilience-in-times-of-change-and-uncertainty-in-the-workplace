@@ -1,5 +1,4 @@
-Chapter 4: Techniques for Staying Adaptable, Flexible, and Proactive
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a set of practical techniques that will empower you to stay adaptable, flexible, and proactive in the face of change and uncertainty within the workplace. These skills are essential for fostering resilience and thriving in dynamic professional environments.
 

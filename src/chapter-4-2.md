@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Recognizing and Managing Emotions, Practicing Mindfulness, and Self-Reflection
-========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into a set of essential techniques that will help you recognize and manage your emotions effectively, practice mindfulness, and engage in self-reflection. These skills are instrumental in fostering resilience during times of change and uncertainty in the workplace.
 

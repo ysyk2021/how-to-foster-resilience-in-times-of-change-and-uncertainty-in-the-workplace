@@ -1,5 +1,4 @@
-Chapter 2: Definition of Resilience in the Workplace
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will define and explore the concept of resilience in the context of the workplace, shedding light on its significance and the key elements that comprise a resilient work environment.
 

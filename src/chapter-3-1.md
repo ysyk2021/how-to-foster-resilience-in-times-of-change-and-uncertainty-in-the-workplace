@@ -1,5 +1,4 @@
-Chapter 7: Overview of Developing a Growth Mindset for Fostering Resilience
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of the importance of developing a growth mindset in fostering resilience during times of change and uncertainty in the workplace. A growth mindset is a powerful tool that can help individuals and organizations adapt, learn, and thrive in challenging environments.
 
